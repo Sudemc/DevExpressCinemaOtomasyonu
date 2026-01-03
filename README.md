@@ -1,1 +1,1 @@
-[Uploading ntprapor.docx…]()
+
